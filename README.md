@@ -1,1 +1,1 @@
-![image](https://github.com/JeremiahRanen7/Ranen-portfolio/assets/141173239/957cca1d-bdf9-484a-af1c-2d1c55d6405e)
+![image](https://github.com/JeremiahRanen7/Ranen-portfolio/assets/141173239/99590d7e-e4bd-42ff-bcc6-fca170b088bc)
